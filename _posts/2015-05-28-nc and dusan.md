@@ -1,5 +1,5 @@
 #DooSan Bears
-![두산엠블럼](http://dbscthumb.phinf.naver.net/2765_000_229/20131029203801163_VAN0UCN9E.jpg/1734697.jpg?type=m250&wm=N)
+![두산엠블럼](http://image.ajunews.com/content/image/2011/04/08/20110408000288_0.jpg)
 
 연고지 : 서울특별시 
 
