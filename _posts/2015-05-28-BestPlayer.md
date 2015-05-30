@@ -6,8 +6,8 @@
 소속팀 : 텍사스 레인저스(MLB)
 별명 : 추추트레인
 
-메이저 리그 통산성적
-![통산성적](http://postfiles9.naver.net/20131207_264/xxxx3067_1386413921812hkPB5_JPEG/%C3%DF%BD%C5%BC%F6_%C5%EB%BB%EA%BC%BA%C0%FB.jpg?type=w1)
+메이저 리그 FA계약 전 통산성적
+![통산성적](http://blogfiles.naver.net/20131207_264/xxxx3067_1386413921812hkPB5_JPEG/%C3%DF%BD%C5%BC%F6_%C5%EB%BB%EA%BC%BA%C0%FB.jpg)
 
 이번시즌 : 43경기 167타수 24득점 7홈런 23타점 0도루 16볼넷 5사구 46삼진 타율 : 0.240
 
@@ -21,10 +21,11 @@
 188.9cm , 115.6kg
 
 류현진 한화시절 통산성적
-![한화](http://postfiles13.naver.net/20150313_140/xxxx3067_1426238528476o19dF_JPEG/%B7%F9%C7%F6%C1%F8_%C5%EB%BB%EA%B1%E2%B7%CF9.jpg?type=w1)
+![한화](http://cfile21.uf.tistory.com/original/2426183B51FF3C50208980)
 
-류현진 메이저 통산성적
-![메이저](http://postfiles11.naver.net/20150313_282/xxxx3067_1426238792626wX0Qt_JPEG/%B7%F9%C7%F6%C1%F8_%C5%EB%BB%EA%B1%E2%B7%CF10.jpg?type=w1)
+류현진 메이저 성적 (2013, 2014)
+![2013](http://blogfiles.naver.net/20130930_139/z20689_1380516515531cxtWE_JPEG/2013-09-30_13%3B48%3B54.jpg)
+![2014](http://blogfiles.naver.net/20141010_59/bestbright_1412912605506mjaUN_JPEG/%B7%F9%C7%F6%C1%F8.jpg)
 
 이번시즌은 아쉽게도 
 어깨 관절 수술로 인해 시즌아웃을 했다.
