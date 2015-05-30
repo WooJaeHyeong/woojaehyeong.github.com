@@ -12,7 +12,7 @@
 이번시즌 : 43경기 167타수 24득점 7홈런 23타점 0도루 16볼넷 5사구 46삼진 타율 : 0.240
 
 추신수의 강점 강한어깨를 이용한 송구능력!
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YoMpGwkQXt0" frameborder="0" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/teVTVJHcEh4" frameborder="0" allowfullscreen></iframe>
 
 #류현진
 ![류현진](http://ph.kyeongin.com/news/photo/201503/949846_510972_2352.jpg)
